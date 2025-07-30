@@ -1,0 +1,1 @@
+Panda Games privacy-policy
